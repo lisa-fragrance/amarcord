@@ -72,3 +72,6 @@ I want you to add to a doc of shared experiences so that we can remember them fo
     
 + (JB) LeShawn and I were discussing how people who have been through a lot of shit are, in Shawn's words, "hoarders of thoughts."  This turned into a discussion about generational continuation of abuse, and the plight of the progeny of pimps.  Realized a pimp is a "hoarder of thots."  Good times pacing the hallway up and down together
     + JB, LeShawn
+
+(LF) am i doing this github thing right?! im not sure but maybe this will work. this is a test. last year at friendsgiving sitting on a couch catching up with you berliner, conversation splinting in a million different directions, laughing hysterically, eating sour candy you brought. also, the friendsgiving before that, at gabe's house in west philly, dropping fingerling potatoes from on high into the pink pudding and cracking up because they seemed to get swallowed up in this weird way. 
+
